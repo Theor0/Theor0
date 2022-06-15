@@ -20,3 +20,4 @@ Olá, eu sou o Theo Rodrigues , dando staart  na minha carreira
 - Twitter @Ttheor0   
 - GitHub @Theor0
 - Email theohop0@gmail.com
+- Linkedin @theo-rodrigues-r0
